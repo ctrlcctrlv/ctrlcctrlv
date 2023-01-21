@@ -4,4 +4,4 @@ Best way to contact is always email, at left.
 
 <sup>¹ K stands for nothing.</sup>
 
-(Profile pic by [@mangolynx](https://twitter.com/themangolynx))
+(Profile pic by [@maaudaan_tg](https://twitter.com/maaudaan_tg))
